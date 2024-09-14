@@ -1,2 +1,3 @@
 ## Git Profile 
-- Mskerz 
+- Call Me Mskerz
+- Name: Wichasin Sutthiarj 
